@@ -6,7 +6,7 @@ Bursa777 hadir untuk memberikan pengalaman bermain yang menyenangkan, aman, dan 
 
 Kenapa Memilih Bursa777
 - 🎰 Provider Lengkap - Tersedia banyak pilihan game slot terbaik dari provider resmi.  
-- ⚡ RTP Tinggi – Tingkat kemenangan besar dengan peluang jackpot yang lebih adil.  
+- ⚡ RTP Tinggi - Tingkat kemenangan besar dengan peluang jackpot yang lebih adil.  
 - 💳 Metode Pembayaran Mudah - Mendukung berbagai sistem transaksi cepat dan aman.  
 - 🔒 Keamanan Terjamin - Data dan privasi pemain selalu terlindungi.  
 
